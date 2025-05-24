@@ -1,4 +1,4 @@
-# ✊ $SATOSHI - A Movement, Not Just a Meme
+# ✊ $SATOSHI - A Movement, A Community Coin, Not a Memecoin
 
 ## Why $SATOSHI?
 
