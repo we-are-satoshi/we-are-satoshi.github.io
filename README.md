@@ -19,14 +19,6 @@ Until now.
 - 💪 **Reclaiming crypto** from gimmicks and giving it meaning again.
 - 👑 **Crowning #SATOSHI** as the king — not for fun, but for purpose.
 
-## We Are the Takeover
-
-The original dev gave up. We didn’t.  
-We stepped in. We took control.  
-We are the community now.  
-We are Satoshi.  
-And **we’re here to win**.
-
 ## Join the Movement
 
 **$SATOSHI isn’t just another meme. It’s the most meaningful one.**  
